@@ -4,7 +4,7 @@
 
 ###### teste
 
--**ola eu sou sasukeeeeeeeeeeee
+-**ola eu sou sasuke
 -:+1:0 meu email é [e-mail](welington.coelho@escola.pr.gov.br)
 -:+ eu estou interessado em aprenter linguagens de programaçao
 - 👀 
